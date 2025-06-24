@@ -86,8 +86,8 @@ They can **tear someone down** or **build them up**.
 - **STOP:** Don't react immediately. Take a deep breath.  
 - **PRAY:** Ask Jesus for self-control and wisdom.  
 - **THINK:** How would Jesus want you to respond? Will your words/actions bring life or cause more death (like **Proverbs 18:21** says)?
-  - The tongue has the power of life and death,
-    and those who love it will eat its fruit.
+
+> The tongue has the power of life and death, and those who love it will eat its fruit.
 
 Let’s be the kind of youth who, even in the **heat of the moment**, choose to respond like Jesus – with **peace**, **wisdom**, and **love**.  
 Because when you let Jesus lead, you can *cool down* any heated situation and truly make a difference for His Kingdom.
