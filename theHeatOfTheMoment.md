@@ -5,11 +5,11 @@
 
 ## I. Introduction (1.5 minutes)
 
-> "Hey everyone! Good to see you all tonight. We're going to talk about something I think we can all relate to: **'The Heat of the Moment.'**
+> "Hey guys, the sermon I prepared for tonight is called: **'The Heat of the Moment.'**
 
-You know that feeling, right? When your emotions are boiling, your heart's pounding, and you just want to react right now?
+The Heat of the Moment refers to when your emotions are boiling, your heart's pounding, and you just want to react right now.
 
-Have you ever been in an argument with a friend or family member, and in the heat of the moment, you said something you immediately regretted?
+Has anyoune ever been in an argument with a friend or family member, and in the heat of the moment, you said something you immediately regretted?
 
 What about when you feel like something is totally unfair, maybe in a game or at school, and you just want to lash out?
 
@@ -23,7 +23,7 @@ Tonight, we're going to look at a heated moment from the Bible and see what we c
 
 ## II. Bible Story: Peter's Impulsive Reaction (4 minutes)
 
-> "Let's turn to a very famous night in the Bible, the night Jesus was betrayed and arrested. Imagine the scene: Jesus and His disciples are in the Garden of Gethsemane. Suddenly, a large crowd shows up, armed with swords and clubs, led by Judas, coming to arrest Jesus.
+> "We're going to look at a very famous night in the Bible, the night Jesus was betrayed and arrested in the garden of Gethsemane. Imagine the scene: Jesus and His disciples are in the Garden of Gethsemane. Suddenly, a large crowd shows up, armed with swords and clubs, led by Judas, coming to arrest Jesus.
 
 Put yourself in the disciples' shoes. Their teacher, their friend, the one they believed was the Messiah, is about to be taken away. This is an incredibly stressful, emotional, and definitely heated moment.
 
@@ -42,16 +42,20 @@ But what was Jesus’s reaction? Did He join the fight? Did He praise Peter's lo
 
 > "Peter's impulsive action is a powerful example of what can happen when we act purely out of emotion in a heated moment. We can cause pain, damage relationships, and go against God's will.
 
-So, how do we avoid making a *'Peter's mistake'* in our own heated moments? How do we keep our cool when everything inside us is telling us to lash out, to react, to fight back with words or actions?
+So, how do we avoid making a mistake in our own heated moments? How do we keep our cool when everything inside us is telling us to lash out, to react, to fight back with words or actions?
 
-The answer, friends, is **Jesus**. He is our ultimate example and our source of strength to navigate these tough situations.
+The answer, is **Jesus**. He is our ultimate example and our source of strength to navigate these tough situations.
 
 ### Here’s how Jesus can help us *cool down* in the heat of the moment:
 
 ---
 
 #### 1. **He Gives Us Self-Control (Through the Holy Spirit)**  
-> The Bible tells us in **Galatians 5:22-23** that the fruit of the Spirit includes *'self-control.'* When we're connected to Jesus, His Holy Spirit lives in us, empowering us to pause, to think, and to choose our reactions instead of just letting our emotions control us. It’s like having an internal *'chill'* button.
+> The Bible tells us in **Galatians 5:22-23** 
+
+ 22 But the fruit of the Spirit is love, joy, peace, forbearance, kindness, goodness, faithfulness, 23 gentleness and self-control. Against such things there is no law.
+
+The fruit of the Spirit includes *'self-control.'* When we're connected to Jesus, His Holy Spirit lives in us, empowering us to pause, to think, and to choose our reactions instead of just letting our emotions control us. It’s like having an internal *'chill'* button.
 
 ---
 
@@ -82,6 +86,8 @@ They can **tear someone down** or **build them up**.
 - **STOP:** Don't react immediately. Take a deep breath.  
 - **PRAY:** Ask Jesus for self-control and wisdom.  
 - **THINK:** How would Jesus want you to respond? Will your words/actions bring life or cause more death (like **Proverbs 18:21** says)?
+  - The tongue has the power of life and death,
+    and those who love it will eat its fruit.
 
 Let’s be the kind of youth who, even in the **heat of the moment**, choose to respond like Jesus – with **peace**, **wisdom**, and **love**.  
 Because when you let Jesus lead, you can *cool down* any heated situation and truly make a difference for His Kingdom.
