@@ -1,4 +1,4 @@
-## Title: No Lone Wolves: The Power of the Circle
+## No Lone Wolves: The Power of the Circle
 
 **Target Audience:** Youth Group (Ages 12–18)
 
