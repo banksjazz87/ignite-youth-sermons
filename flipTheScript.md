@@ -236,4 +236,4 @@ An attitude of gratitude doesn't make every problem disappear—but it reminds u
 
 ## Closing Prayer
 
-*"Lord, thank You for all You've already done in our lives. Forgive us for the times we've focused more on what's missing than on Your faithfulness. Help us to flip the script—to replace complaining with gratitude, fear with faith, and negativity with hope. Teach us to see every day through the lens of Your goodness. May our grateful hearts point others to You. In Jesus' name, Amen.”
+>*"Lord, thank You for all You've already done in our lives. Forgive us for the times we've focused more on what's missing than on Your faithfulness. Help us to flip the script—to replace complaining with gratitude, fear with faith, and negativity with hope. Teach us to see every day through the lens of Your goodness. May our grateful hearts point others to You. In Jesus' name, Amen.”*
